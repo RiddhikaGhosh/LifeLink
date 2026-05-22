@@ -192,6 +192,6 @@ Developed with ❤️ for saving lives.
 
 # 📞 Contact
 
-📧 Email: your-email@example.com
+📧 Email: lyricallyriddhika@gmail.com
 
 🌐 Website: https://life-link-blood-donor.lovable.app/register
